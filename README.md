@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sskiro
 - 👀 I’m interested in lerning how to program
-- 🌱 I’m currently treying to lern how to program
+- 🌱 I’m currently traying to lern how to program
 - 💞️ I’m looking to collaborate on what app you got 
 - 📫 How to reach me just dm me 
 
